@@ -23,5 +23,5 @@ INTㅤ｡ㅤthe less you speak, the better (jk >_<). anyone who I share interest
 </p>
 
 <p align="center">
-INTERESTSㅤ｡ㅤhonkai star rail, house m.d, epic the musical, cookie run kingdom, ornithology, astronomy, physics, theology, mythology, etc.
+INTERESTSㅤ｡ㅤhonkai star rail, lego monkie kid, house m.d, epic the musical, cookie run kingdom, ornithology, astronomy, physics, theology, mythology, etc.
 </p>
