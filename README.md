@@ -15,13 +15,13 @@ INFOㅤ｡ㅤw2i, c + h, esp / eng. I am autistic. int is welcome, but please do
 </p>
 
 <p align="center">
-DNIㅤ｡ㅤbasic dni. those who dislike my interests, specially aventio and birds.
+DNIㅤ｡ㅤbasic dni. those who dislike my interests, specially aventio, and birds.
 </p>
 
 <p align="center">
-INTㅤ｡ㅤthe less you speak, the better (jk >_<). anyone who I share interests with, silent interactions. I, however, unfortunately adore talking once I get comfortable.
+INTㅤ｡ㅤthe less you speak, the better (jk >_<). anyone who I share interests with, silent interactions. I, however, unfortunately adore talking once I get comfortable, but it usually takes a good while.
 </p>
 
 <p align="center">
-INTERESTSㅤ｡ㅤhonkai star rail, lego monkie kid, house m.d, epic the musical, cookie run kingdom, ornithology, astronomy, physics, theology, mythology, etc.
+INTERESTSㅤ｡ㅤhonkai star rail, lego monkie kid, house m.d, epic the musical, cookie run kingdom, ornithology, rock minerals, astronomy, physics, theology, mythology, etc.
 </p>
