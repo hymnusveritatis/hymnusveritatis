@@ -15,7 +15,7 @@
 </p>
 
 <p align="center">
-𝗗𝗡𝗜ㅤ｡ㅤbasic dni. those who dislike my interests: SPECIALLY aventurine (don't even talk to me tbh) aventio, and birds.
+𝗗𝗡𝗜ㅤ｡ㅤbasic dni. those who dislike my interests — ESPECIALLY aventurine (don't even talk to me tbh) aventio, and birds.
 </p>
 
 <p align="center">
