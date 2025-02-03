@@ -15,7 +15,7 @@ INFOㅤ｡ㅤw2i, c + h, esp / eng. I am autistic. int is welcome, but please do
 </p>
 
 <p align="center">
-DNIㅤ｡ㅤbasic dni. those who dislike my interests, specially aventio, and birds.
+DNIㅤ｡ㅤbasic dni. those who dislike my interests, SPECIALLY aventurine (don't even talk to me tbh) aventio, and birds.
 </p>
 
 <p align="center">
