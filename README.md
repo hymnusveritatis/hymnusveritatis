@@ -15,7 +15,11 @@
 </p>
 
 <p align="center">
-𝗗𝗡𝗜ㅤ｡ㅤbasic dni. those who dislike my interests — ESPECIALLY aventurine (don't even talk to me tbh) aventio, and birds.
+𝗕𝗬𝗜ㅤ｡ㅤI have a blunt personality — it can come off as harsh, and I often scold people in that manner: it is all intended to be lighthearted. If I am serious, I WILL let you know.
+</p>
+
+<p align="center">
+𝗗𝗡𝗜ㅤ｡ㅤbasic dni. those who dislike my interests — aventio, birds and ESPECIALLY aventurine.
 </p>
 
 <p align="center">
