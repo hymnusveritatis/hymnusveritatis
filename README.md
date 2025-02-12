@@ -19,7 +19,7 @@
 </p>
 
 <p align="center">
-𝗗𝗡𝗜ㅤ｡ㅤbasic dni. those who dislike my interests — aventio, birds and ESPECIALLY aventurine.
+𝗗𝗡𝗜ㅤ｡ㅤbasic dni, proshippers, and such who tolerate these behaviours. those who dislike my interests — aventio, birds and ESPECIALLY aventurine.
 </p>
 
 <p align="center">
