@@ -19,7 +19,7 @@
 </p>
 
 <p align="center">
-𝗗𝗡𝗜ㅤ｡ㅤbasic dni, proshippers, people who somehow aren't able to respect something as simple like FUCKING boundaries, and such who tolerate these behaviours. those who dislike my interests — aventio, birds and ESPECIALLY aventurine.
+𝗗𝗡𝗜ㅤ｡ㅤbasic dni, proshippers, people who *somehow* aren't able to respect something as simple as boundaries, and such who tolerate these behaviours. those who dislike my interests — aventio, birds and ESPECIALLY aventurine.
 </p>
 
 <p align="center">
