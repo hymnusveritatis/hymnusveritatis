@@ -15,7 +15,7 @@
 </p>
 
 <p align="center">
-𝗕𝗬𝗜ㅤ｡ㅤI have chronic pains which make me chronically ill. I'm a blunt person — it can come off as harsh, and I often scold people in that manner: it is all intended to be lighthearted. If I am serious, I WILL let you know.
+𝗕𝗬𝗜ㅤ｡ㅤI have chronic pains which make me chronically ill. I'm a blunt person — it can come off as harsh, and I often scold people in that manner: it is all intended to be lighthearted. If I am serious, I WILL let you know. I am happily taken by my beautiful girlfriend
 </p>
 
 <p align="center">
