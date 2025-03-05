@@ -23,7 +23,7 @@
 </p>
 
 <p align="center">
-𝗜𝗡𝗧ㅤ｡ㅤthe less you speak, the better (jk >_<). anyone who I share interests with, silent interactions. I, however, unfortunately adore talking once I get comfortable, but it usually takes a good while.
+𝗜𝗡𝗧ㅤ｡ㅤthe less you speak, the better (jk >_<). anyone who I share interests with, silent interactions. I, however, unfortunately adore talking once I get comfortable, but it might take a good while.
 </p>
 
 <p align="center">
