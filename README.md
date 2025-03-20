@@ -13,7 +13,7 @@
 </p>
 
 <p align="center">
-𝗜𝗡𝗙𝗢ㅤ｡ㅤw2i, c + h, esp / eng. I am autistic. int is welcome, but please do so with caution. do NOT copy nor heavily inspo.
+𝗜𝗡𝗙𝗢ㅤ｡ㅤw2i, c + h, esp / eng. I am autistic. int is welcome, but please do so with caution. do NOT copy my ponies.
 </p>
 
 <p align="center">
