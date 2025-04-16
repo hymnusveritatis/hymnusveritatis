@@ -19,11 +19,11 @@
 </p>
 
 <p align="center">
-𝗜𝗡𝗙𝗢ㅤ｡ㅤw2i, c + h, esp / eng. I am autistic. int is welcome, but please do so with caution. I am taken.
+𝗜𝗡𝗙𝗢ㅤ｡ㅤw2i, esp / eng. I am autistic. int is welcome, but please do so with caution. I am taken.
 </p>
 
 <p align="center">
-𝗕𝗬𝗜ㅤ｡ㅤI have chronic pains which make me chronically ill. I'm a blunt person — it can come off as harsh, and I often scold people in that manner: it is all intended to be lighthearted. If I am serious, I WILL let you know. SEVERE anxiety and fear of religious themes, mostly christianism, do not try to trigger nor bring it up AT ALL.
+𝗕𝗬𝗜ㅤ｡ㅤI have chronic pains which make me chronically ill. I'm a blunt person — it can come off as harsh, and I often scold people in that manner: it is all intended to be lighthearted. If I am serious, I WILL let you know. SEVERE anxiety of religious themes, mostly christianism, do not try to trigger nor bring it up AT ALL. avoid cuddling at all costs without asking when I am already cuddling with someone else
 </p>
 
 <p align="center">
