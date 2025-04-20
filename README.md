@@ -35,5 +35,5 @@
 </p>
 
 <p align="center">
-𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦ㅤ｡ㅤhonkai star rail, lego monkie kid, house m.d, epic the musical, interstellar (movie), ornithology, entomology, rock minerals, astronomy, physics, a͟s͟t͟r͟o͟p͟h͟y͟s͟i͟c͟s͟, theology, mythology, etc.
+𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦ㅤ｡ㅤhonkai star rail, lego monkie kid, house m.d, epic the musical (the odyssey in general), ornithology, entomology, crystallography, astronomy, physics, a͟s͟t͟r͟o͟p͟h͟y͟s͟i͟c͟s͟, theology, mythology, etc.
 </p>
