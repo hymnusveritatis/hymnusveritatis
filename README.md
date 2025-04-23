@@ -15,5 +15,5 @@
 </p>
 
 <p align="center">
-<a href="https://rentry.co/veritasetvirtus">RENTRY</a> <a href="https://pronouns.cc/@orphicverity">PRONOUNS</a>
+<a href="https://rentry.co/veritasetvirtus">RENTRY</a>ㅤㅤ<a href="https://pronouns.cc/@orphicverity">PRONOUNS</a>
 </p>
