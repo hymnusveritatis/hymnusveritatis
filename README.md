@@ -15,5 +15,5 @@
 </p>
 
 <p align="center">
-[R͟E͟N͟T͟R͟Y͟](https://rentry.co/veritasetvirtus)⠀⠀[P͟R͟O͟N͟O͟U͟N͟S͟](https://pronouns.cc/@orphicverity)
+[RENTRY](https://rentry.co/veritasetvirtus)⠀⠀[PRONOUNS](https://pronouns.cc/@orphicverity)
 </p>
