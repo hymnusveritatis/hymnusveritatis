@@ -15,25 +15,5 @@
 </p>
 
 <p align="center">
-ㅤ
-</p>
-
-<p align="center">
-𝗜𝗡𝗙𝗢ㅤ｡ㅤw2i, esp / eng. I am autistic. int is welcome, but please do so with caution. I am taken.
-</p>
-
-<p align="center">
-𝗕𝗬𝗜ㅤ｡ㅤI have chronic pains which make me chronically ill. I'm a blunt person — it can come off as harsh, and I often scold people in that manner: it is all intended to be lighthearted. If I am serious, I WILL let you know. SEVERE anxiety of religious themes, mostly christianism, do not try to trigger nor bring it up AT ALL. avoid cuddling at all costs without asking when I am already cuddling with someone else
-</p>
-
-<p align="center">
-𝗗𝗡𝗜ㅤ｡ㅤbasic dni, proshippers, people who *somehow* aren't able to respect something as simple as boundaries, and such who tolerate these behaviours. those who dislike my interests (mostly aventio, birds and ESPECIALLY aventurine). sunturine shippers are on THIN ICE, and if its one of your most preferred ships dni.
-</p>
-
-<p align="center">
-𝗜𝗡𝗧ㅤ｡ㅤ anyone who I share interests with and are willing to listen to me rambling about them, silent interactions. I adore yapping once I get comfortable, but it can take a good while.
-</p>
-
-<p align="center">
-𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦ㅤ｡ㅤhonkai star rail, lego monkie kid, house m.d, epic the musical (the odyssey in general), ornithology, entomology, crystallography, astronomy, physics, a͟s͟t͟r͟o͟p͟h͟y͟s͟i͟c͟s͟, theology, mythology, etc.
+[R͟E͟N͟T͟R͟Y͟](https://rentry.co/veritasetvirtus)⠀⠀[P͟R͟O͟N͟O͟U͟N͟S͟](https://pronouns.cc/@orphicverity)
 </p>
