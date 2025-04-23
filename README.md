@@ -12,6 +12,8 @@
 
 <p align="center">
 “𝐓𝐡𝐢𝐧𝐤𝐢𝐧𝐠 — 𝐭𝐡𝐞 𝐭𝐚𝐥𝐤𝐢𝐧𝐠 𝐨𝐟 𝐭𝐡𝐞 𝐬𝐨𝐮𝐥 𝐰𝐢𝐭𝐡 𝐢𝐭𝐬𝐞𝐥𝐟.”
+</p>
 
-[RENTRY](https://rentry.co/veritasetvirtus)⠀⠀[PRONOUNS](https://pronouns.cc/@orphicverity)
+<p align="center">
+<a href="https://rentry.co/veritasetvirtus">RENTRY</a> <a href="https://pronouns.cc/@orphicverity">PRONOUNS</a>
 </p>
