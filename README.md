@@ -7,7 +7,7 @@
 ㅤㅤㅤㅤㅤㅤ
 ㅤ
 <p align="center">
-   <img src="[https://64.media.tumblr.com/7482425c241e8e9b81cb15b0706b1464/74898b6559745bb2-6f/s540x810/a958e433bb7f7cca7abe9669ed632be8174c3c47.webp](https://file.garden/aAg-tXrabAPrZUtx/tumblr_005ab938f156186a2980988753b3ff4d_6fab98b5_1280%20(1).png)"%7Bwidth=200px height=200px}/>
+   <img src="https://file.garden/aAg-tXrabAPrZUtx/tumblr_005ab938f156186a2980988753b3ff4d_6fab98b5_1280%20(1).png"%7Bwidth=200px height=200px}/>
 </p>
 
 <p align="center">
