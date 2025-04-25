@@ -10,6 +10,8 @@
    <img src="https://file.garden/aAg-tXrabAPrZUtx/tumblr_005ab938f156186a2980988753b3ff4d_6fab98b5_1280%20(1).png"%7Bwidth=200px height=200px}/>
 </p>
 
+ㅤㅤㅤㅤ
+
 <p align="center">
 “𝐓𝐡𝐢𝐧𝐤𝐢𝐧𝐠 — 𝐭𝐡𝐞 𝐭𝐚𝐥𝐤𝐢𝐧𝐠 𝐨𝐟 𝐭𝐡𝐞 𝐬𝐨𝐮𝐥 𝐰𝐢𝐭𝐡 𝐢𝐭𝐬𝐞𝐥𝐟.”
 </p>
