@@ -4,7 +4,7 @@
 
 
 <p align="center">
-   <img src="https://file.garden/aAg-tXrabAPrZUtx/67_sin_titulo_20250526211215.png"%7Bwidth=400px height=400px}/>
+   <img src="https://file.garden/aAg-tXrabAPrZUtx/67_sin_titulo_20250526231306.png"%7Bwidth=400px height=400px}/>
 </p>
 
 
