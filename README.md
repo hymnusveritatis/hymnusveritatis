@@ -1,4 +1,6 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=hymnusveritatis&style=for-the-badge&color=72629e&label=☼)
+<div align="center">
+   
+![](https://komarev.com/ghpvc/?username=hymnusveritatis&style=for-the-badge&color=72629e&label=☼)
 
 
 <p align="center">
