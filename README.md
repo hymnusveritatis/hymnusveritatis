@@ -16,7 +16,7 @@
 
 
 <p align="center">
-<a href="https://rentry.co/apodictic">RENTRY</a>ㅤㅤ<a href="https://pronouns.cc/@orphicverity">PRONOUNS</a>
+<a href="https://rentry.co/amaranthic">RENTRY</a>ㅤㅤ<a href="https://pronouns.cc/@orphicverity">PRONOUNS</a>
 </p>
 ㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤ
