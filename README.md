@@ -4,7 +4,7 @@
 
 
 <p align="center">
-   <img src="https://file.garden/aAg-tXrabAPrZUtx/67_sin_titulo_20250526231306.png">
+   <img src="https://file.garden/aAg-tXrabAPrZUtx/drratio.png">
 </p>
 
 
