@@ -16,7 +16,7 @@
 
 
 <p align="center">
-<a href="https://rentry.co/goldentide">RENTRY</a>ㅤㅤ<a href="https://pronouns.cc/@hymnusveritatis">PRONOUNS</a>ㅤㅤ<a href="https://hymnusveritatis.atabook.org/">ATA</a>
+<a href="https://rentry.co/goldentide">RENTRY</a>ㅤㅤ<a href="https://pronouns.cc/@cerullean">PRONOUNS</a>
 </p>
 
 ㅤㅤㅤㅤㅤㅤ
