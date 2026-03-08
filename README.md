@@ -10,7 +10,7 @@
 
 
 <p align="center">
-“ wounds are everything what keeps us strong ”
+“ Wounds — And One ”
 </p>
 ㅤㅤㅤㅤㅤㅤ
 
