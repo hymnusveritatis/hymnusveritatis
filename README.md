@@ -1,6 +1,6 @@
 <div align="center">
    
-![](https://komarev.com/ghpvc/?username=hymnusveritatis&abbreviated=true&style=for-the-badge&color=388da0&label=%E2%9C%A6)
+![](https://files.catbox.moe/kkydpt.png)
 
 
 <p align="center">
@@ -10,7 +10,7 @@
 
 
 <p align="center">
-“ in the wind that remakes all that time has worn away ”
+“ wounds are everything what keeps us strong ”
 </p>
 ㅤㅤㅤㅤㅤㅤ
 
