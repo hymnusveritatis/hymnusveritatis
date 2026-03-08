@@ -1,10 +1,10 @@
 <div align="center">
    
-![](https://files.catbox.moe/kkydpt.png)
+![](https://komarev.com/ghpvc/?username=hymnusveritatis&abbreviated=true&style=for-the-badge&color=388da0&label=%E2%9C%A6)
 
 
 <p align="center">
-   <img src="https://file.garden/aAg-tXrabAPrZUtx/drratio.png">
+   <img src="https://files.catbox.moe/kkydpt.png">
 </p>
 
 
