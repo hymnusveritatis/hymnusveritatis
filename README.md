@@ -1,6 +1,6 @@
 <div align="center">
    
-![](https://komarev.com/ghpvc/?username=hymnusveritatis&abbreviated=true&style=for-the-badge&color=4A8C76&label=%E2%9C%A6)
+![](https://komarev.com/ghpvc/?username=hymnusveritatis&style=for-the-badge&color=438B7F&label=%E2%9C%A6)
    
    
    
