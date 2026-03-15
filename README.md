@@ -11,7 +11,4 @@
 <a href="https://rentry.co/goldentide" target="_blank">rentry​</a>　　<a href="https://pronouns.cc/@cerullean" target="_blank">pronouns page​</a>　　　 ₍ᐢ. .ᐢ₎
 
 
-<p align="center">
-<img src="https://files.catbox.moe/8h6imx.png">
-</p>
 
