@@ -1,6 +1,6 @@
 <div align="center">
    
-![](https://komarev.com/ghpvc/?username=hymnusveritatis&plastic&color=438B7F&label=⠀⠀🍏⠀⠀)
+![](https://komarev.com/ghpvc/?username=hymnusveritatis&abbreviated=true&plastic&color=438B7F&label=⠀⠀🍏⠀⠀)
    
    
    
